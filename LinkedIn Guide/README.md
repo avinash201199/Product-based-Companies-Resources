@@ -1,5 +1,7 @@
 
 ### How to improve your LinkedIn profile?
+![image](https://user-images.githubusercontent.com/61057666/167303556-acf9c599-2601-4394-9b2b-7177fa8b11c9.png)
+
 
 Having a LinkedIn profile will help you a great deal in landing your dream job. And the sooner you have it, the better it will be for your career.
 A well-written LinkedIn profile will give you credibility and will establish you as a trustworthy potential employee. Every time a recruiter contacts you, you can be sure that they’ve looked at your profile. Your LinkedIn profile will act as a validator in that you are a real person, and not someone whose CV or resume is too good to be true.
